@@ -1,3 +1,0 @@
-intentional
-productive
-creativity
